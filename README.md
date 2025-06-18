@@ -1,4 +1,4 @@
-# Hi 👋, I'm Veda Kunamneni:
+# Hi 👋, I'm Veda Kunamneni.
 🖥️ Interested in Cybersecurity, AI, Machine Learning, and Computer Science
 
 
